@@ -31,7 +31,7 @@
 
 ##On the self
 - Owning too many things make the things own you.
-- Transparency allows us to better connect, become more tolerant, to better focus on what matters, and it's a mean to a better world. But we should take into account others peoples feelings when practicing it.
+- Transparency allows us to better connect, become more tolerant, to better focus on what matters, and it's a mean to a better world. But we should take into account other people's feelings when practicing it.
 - The only thing that stands in the way of great success are ourselves.
 
 ##On Education
