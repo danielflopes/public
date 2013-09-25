@@ -6,9 +6,9 @@
 - Health care should be available to everyone who needs it.
 - Death penalty shouldn't be allowed anywhere.
 - Marijuana should be legal to grow, sell, buy, and carry.
-- Drug users should be aided for treatment. Not punishment.
+- Illegal drug users should be aided for treatment. Not punishment.
 - Owning guns for own safety should be allowed only in extreme cases. They give us a false feeling of security.
-- Animals shouldn't be used for our amusement in detriment of their well being. This means no to animal fights, part of fur clothing, domestication of exotic animals, and animal circus.
+- Animals shouldn't be used for our amusement in detriment of their well being. This means 'no' to animal fights, part of fur clothing, domestication of exotic animals, and animal circus.
 
 ##On Spirituality 
 - If there is a God, he created the laws of physics. Everything else is just a consequence.
