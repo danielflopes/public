@@ -22,8 +22,8 @@
 
 ##On Health 
 - Every food we eat will have a good or bad impact in our (long term) health.
-- The more refined the food is, the unhealthier it is.
-- There isn't an irrefutable best diet, food, or workout. There is still not enough data to fully understand the consequences of different food, diets and workouts on different human bodies.
+- The more refined the food, the unhealthier it is.
+- There isn't an irrefutable best diet, food, or workout. There still isn't enough data to fully understand the consequences of different food, diets and workouts on different human bodies.
 
 ##On Technology
 - Cars are outdated - they should already be computer-driven. Too many people die in car accidents due to human error.
